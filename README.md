@@ -38,7 +38,7 @@ Feel free to **fork, star, and contribute** to my repositories! 🚀
 
 ## 📫 Let's Connect  
 📩 **Email**: rakotoharilalainafabrino@gmail.com  
-🔗 **LinkedIn**: [Fabrino](www.linkedin.com/in/pierret-fabrino-rakotoharilalaina-aa6152263)  
+🔗 **LinkedIn**: [Pierret Fabrino Rakotoharilalaina](www.linkedin.com/in/pierret-fabrino-rakotoharilalaina-aa6152263)  
 📱 **WhatsApp**: +261340585428
 📞 **Mobile**: +261340585428
   
